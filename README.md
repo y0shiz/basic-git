@@ -8,6 +8,4 @@ Apple pie pastry lemon drops chupa chups toffee tiramisu pudding gingerbread. Br
 - Ipsum
 - Dolor
 
-### Lorem ipsum
-
-Carrot cake lollipop chocolate bar liquorice chocolate jelly beans apple pie muffin jelly. Donut fruitcake danish pie danish.
+While I’m still not convinced anything will surpass the majesty of Bacon Ipsum, or match the blunt hilarity of Samuel L. Jackson Ipsum, there’s something just so deliciously sweet about Cupcake Ipsum. It’s also the only text generator I know of where you can sprinkle in a little dash of love.
